@@ -31,7 +31,7 @@ Currently finalizing a collaboration with the **National Agriculture Research Ce
 ---
 
 ### 📫 Reach Out
-* **LinkedIn:** [Asad Iftikhar](https://www.linkedin.com/in/syed-asad-iftikhar-a4a738247)
+* **LinkedIn:** [Syed Asad Iftikhar](https://www.linkedin.com/in/syed-asad-iftikhar-a4a738247)
 * **Email:** [shahsyedasad968@gmail.com](mailto:shahsyedasad968@gmail.com)
 * **Base:** Islamabad, Pakistan 🇵🇰
 
